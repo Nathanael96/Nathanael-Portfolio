@@ -4,7 +4,7 @@ Work experience
 
 
 Education
-Math
+Mcinotosh HS
 Athletic
 extracurricular
 Lacrosse
