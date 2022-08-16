@@ -15,4 +15,4 @@
 
 ## Extracurricular 
 - Lacroose
--trying out for soccer 
+- trying out for soccer 
