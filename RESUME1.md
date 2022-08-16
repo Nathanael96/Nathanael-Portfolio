@@ -6,7 +6,7 @@
 - car wash
 
 ## Education History
--J.C Booth
+- J.C Booth
 - McIntosh
 
 ## Hobbies
