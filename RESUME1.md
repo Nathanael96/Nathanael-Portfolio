@@ -2,17 +2,17 @@
 
 
 ## Emplyment History
--mulch 
--car wash
+- mulch 
+- car wash
 
 ## Education History
 -J.C Booth
--McIntosh
+- McIntosh
 
 ## Hobbies
--COD pro 
--gaming 
+- COD pro 
+- working out
 
 ## Extracurricular 
--Lacroose
--
+- Lacroose
+-trying out for soccer 
